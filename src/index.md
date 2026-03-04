@@ -20,6 +20,6 @@ Below are reference sheets for my fursona, Kay! There's a [King](/king/) folder,
 
 The refsheets below are both by [Brennan/KindOfABigSeal](https://www.furaffinity.net/user/brennanhalls) whom you should *definitely* look at commissioning for anything lorge.
 
-[![Clothed](images/KayCoyote_RefSheet_Clothes-01.png)](/images/KayCoyote_RefSheet_Clothes-01.png)
-
 [![No Clothes](images/KayCoyote_RefSheet_NoClothes-01.png)](/images/KayCoyote_RefSheet_NoClothes-01.png)
+
+[![Clothed](images/KayCoyote_RefSheet_Clothes-01.png)](/images/KayCoyote_RefSheet_Clothes-01.png)
